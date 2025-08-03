@@ -5,7 +5,7 @@ Hi i am BOT im  at a software developer- 👋  @BOTYT-alt
 - 📫 How to reach me ... just dm me or comment 
 - 😄 Pronouns: ... food heheh suii
 - ⚡ Fun fact: ...
-hacked my school website and i pretended to be he good guyand they pyed me to fix it
+hacked my school website and i pretended to be he good guy and they payed me to fix it
 <!---
 BOTYT-alt/BOTYT-alt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
